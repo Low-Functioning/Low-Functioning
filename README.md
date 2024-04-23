@@ -5,10 +5,10 @@
 - SO I CALL MYSELF LOW FUNCTIONING.
 
 `FEEL FREE TO CONTACT ME:
-                        :http://www.lowfunctioning.42Wweb.io
-                        :http://www.lowfunctioning.rf.gd/
-                        :https://halal-post.blogspot.com/
-                        :fb.me/me.abir.2024
+- http://www.lowfunctioning.42web.io
+- http://www.lowfunctioning.rf.gd/
+- https://halal-post.blogspot.com/
+- fb.me/me.abir.2024
 
 <!---
 Low-Functioning/Low-Functioning is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
